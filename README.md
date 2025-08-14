@@ -9,7 +9,7 @@ The Monexis brokerage platform operates worldwide. From New York to Dubai, Londo
 Regardless of location, users can count on expert support, and the platform itself is tailored to meet the needs of both U.S.-based investors and clients from Europe, the Middle East, and Asia.
 
 ## Monexis Reviews: What Traders Are Saying
-It’s hard to argue with real numbers—but even harder with real people. Monexis reviews on platforms like **[HackMD](https://hackmd.io/@jA0dNRaiRpGXWGxIvngSqg/HkEUJojHle)**, **[Medium](https://medium.com/@Monexis/monexis-reviews-a-reliable-broker-or-not-a3b6f9d45d81)**, and **[Blogspot](https://mone-xis.blogspot.com/2025/07/monexis-reviews-american-standard-of.html)** are mostly positive.
+It’s hard to argue with real numbers—but even harder with real people. Monexis reviews on platforms like [The Edinburgh Reporter](https://theedinburghreporter.co.uk/2025/07/monexis-reviews-a-broker-you-can-trust/) **[HackMD](https://hackmd.io/@jA0dNRaiRpGXWGxIvngSqg/HkEUJojHle)**, **[Medium](https://medium.com/@Monexis/monexis-reviews-a-reliable-broker-or-not-a3b6f9d45d81)**, and **[Blogspot](https://mone-xis.blogspot.com/2025/07/monexis-reviews-american-standard-of.html)** are mostly positive.
 
 Reviewers highlight:
 
